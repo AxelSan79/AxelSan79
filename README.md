@@ -1,8 +1,8 @@
 
 # Axel Sánchez Tejada
 
+Digital Multimedia Solutions Designer 
 IPTV & Digital Signage Engineer  
-Transitioning into Digital Multimedia Solutions Designer  
 Focused on Content & User Experience
 
 ## About me
